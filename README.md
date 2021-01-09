@@ -23,3 +23,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: martinc8@student.ubc.ca 
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: Suits is my favourite TV show of all time
+- I am currently a first year student at UBC.
